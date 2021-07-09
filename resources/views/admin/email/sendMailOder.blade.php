@@ -1,0 +1,1 @@
+<p>Cảm ơn bạn đã tin dùng các sản phẩm của chúng tôi . Đơn hàng của bạn đã được xử lí ! Tổng đài viên sẽ gọi điện cho bạn để xác thực thông tin trước khi giao hàng trong 30 phút nữa!</p>
